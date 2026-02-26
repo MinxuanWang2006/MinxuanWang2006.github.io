@@ -1,1 +1,1 @@
-# MingxuanWang2006.github.io
+# MinxuanWang2006.github.io
